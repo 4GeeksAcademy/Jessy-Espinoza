@@ -68,9 +68,8 @@
 
 
 ------
-Credit: Jessy
 
-Last Edited on: 27/07/2025
+<p align="center">Credit: Jessy ✨ Last Edited on: 27/07/2025</p>
 
 
   
